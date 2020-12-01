@@ -12,4 +12,7 @@ If you will ask me to paticipat in any projects related to IT I'm available to i
 
 Now I'm [Ecole 42 Bangkok](https://www.42bangkok.com/) student in KMITL Universtiy.
 
+[2.1]: http://i.imgur.com/P3YfQoD.png [Fackbook](https://web.facebook.com/profile.php?id=100007606214957)
+
 Thanks for stopping by. :shipit: :shipit:
+[1]: http://www.twitter.com/Chaiwat_Kasetsinchai
