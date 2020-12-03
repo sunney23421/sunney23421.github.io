@@ -1,7 +1,7 @@
 # sunny23421.github.io
 
-Greeding,my name is Chaiwat K. but you can call me Sun. I'm young, freash, enthusiastic full of hopes and dreams 23 years old student :sparkles:.
-I graduated from Assumption Yniversity of Thailand,faculty of Bachelor of Business Administration majoring in Business Information System.
+Greeding,my name is Chaiwat K. but you can call me Sun. I'm young, fresh, enthusiastic full of hopes and dreams 23 years old student :sparkles:.
+I graduated from Assumption University of Thailand, faculty of Bachelor of Business Administration majoring in Business Information System.
 
 I'm self learner, self made boi.
 
